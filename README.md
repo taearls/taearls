@@ -14,4 +14,4 @@ Outside of tech, I also play music and write songs in my band, Cuckoo and the Bi
 As a musician and live music fan, I urge you to consider donating to [Save Our Stages](https://www.saveourstages.com) to, as their website says, "preserve and nurture the ecosystem of independent live music venues and promoters throughout the United States".
 
 ## GITHUB DROP YOUR CONTRACT WITH ICE
-Seriously, what the hell. Children in cages, forced hysterectomies, families being separated, terrorizing people of color -- these are all solid reasons to drop your [https://www.businessinsider.com/microsoft-owned-github-defends-work-with-ice-employee-resigns-2019-11](contract with ICE).
+Seriously, what the hell. Children in cages, forced hysterectomies, families being separated, terrorizing people of color -- these are all solid reasons to drop your [contract with ICE](https://www.businessinsider.com/microsoft-owned-github-defends-work-with-ice-employee-resigns-2019-11).

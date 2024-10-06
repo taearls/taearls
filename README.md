@@ -1,6 +1,6 @@
 # Hi there 👋
 
-My name is Tyler (he/him). I'm a software engineer and musician based in Chicago, IL.
+My name is Tyler (they/them). I'm a software engineer and musician based in Chicago, IL.
 
 I have worked in the tech industry since 2018 in fullstack roles. I'm proficient in React, Vue, CSS, Java, TypeScript, Node.js, and Rust. 
 
